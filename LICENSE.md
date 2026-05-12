@@ -1,4 +1,4 @@
-# 
+# Get the ultimate CapCut for macOS lut with CapCut for macOS vip LUT: video-stabilization & color-correction. Featuring video-stabilization and color-correction, it's the best
 
 
 
